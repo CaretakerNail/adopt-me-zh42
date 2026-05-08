@@ -1,4 +1,4 @@
-
+stealth Scripts for adopt me offers the most advanced adopt me Script, with silent aim and auto-heal. Perfect for dominating any match.
 
 
 
